@@ -1,0 +1,1 @@
+# projecte_gomezmireia_prataran
